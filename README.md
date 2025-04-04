@@ -1,3 +1,4 @@
+![Screenshot 2025-04-03 062359](https://github.com/user-attachments/assets/35b2d5ec-5cfb-4fbb-be65-504c9680a1c9)
 # MTN Nigeria Q1 Analysis (2023 vs 2024)  
 
 ## Description  
